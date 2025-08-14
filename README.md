@@ -15,6 +15,8 @@ If you don’t want to run the code yourself, you can join our public Discord se
 
 https://discord.gg/jfwmPjrpc3
 
+https://youtu.be/Lmq1Zbev6uE
+
 
 
 # Installation
